@@ -1,3 +1,3 @@
-# Welcome to my blog
+# Welcome to my blog lmao
 
-I'm glad you are here. I plan to talk about ...
+Just type random words for my project
